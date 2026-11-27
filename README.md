@@ -1,1 +1,1 @@
-Game link - https://unfair-peach-ytbrwc6r.edgeone.dev/#
+Game link - https://pocket-arcade-7.ai.studio/
